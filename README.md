@@ -1,2 +1,4 @@
 # recycle_bin_rater
-Recycle Bin Rater 
+THE BEST & ONLY Recycle Bin Rater !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!1
+
+![THE BEST IMAGE](lmao.jpg)
